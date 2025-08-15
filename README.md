@@ -1,2 +1,0 @@
-# pepito
-xd profe loca
